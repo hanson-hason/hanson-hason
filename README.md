@@ -5,13 +5,9 @@
 - 📫 How to reach me : emale
 - 😄 Pronouns: prnoun
 - ⚡ Fun fact: singapore.
-- feuahfuiohffulehhfhulefljasdjkfhasljkdfhlsdkjjkdfjfeuefefugyefgyefyef
-- erfgyagfowuguagyuygiawgyefugyaugefyuefugigfialdkjfhalsdjkhasdjklfhasldjkfhjsklajhdjkjldjjdjdjdjdjsjueuehueuefh
-- read this
-- -I LOVE SINGAPORE!!!! flag_sg
-
-
-  - read this _flag_sg)989)((fashion show)
+- 🇸🇬 My favourite thing: Singapore
+- 🇭🇰 My second favourite thing: Hong Kong
+- 🇲🇴 My second favourite thing: Macau
 
 
 <!---
