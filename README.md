@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hanson-hason
 - 👀 I’m interested in 14977518 
-- 🌱 I’m currently learning Japanese
+- 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me : emale
 - 😄 Pronouns: prnoun
@@ -8,6 +8,10 @@
 - feuahfuiohffulehhfhulefljasdjkfhasljkdfhlsdkjjkdfjfeuefefugyefgyefyef
 - erfgyagfowuguagyuygiawgyefugyaugefyuefugigfialdkjfhalsdjkhasdjklfhasldjkfhjsklajhdjkjldjjdjdjdjdjsjueuehueuefh
 - read this
+- -I LOVE SINGAPORE!!!! flag_sg
+
+
+  - read this _flag_sg)989)((fashion show)
 
 
 <!---
